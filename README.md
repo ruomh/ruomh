@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ruomh
+- 👀 I’m interested in ...TBD
+- 🌱 I’m currently learning ...TBD
+- 💞️ I’m looking to collaborate on ...TBD
+- 📫 How to reach me ...TBD
+- 😄 Pronouns: ...TBD
+- ⚡ Fun fact: ...TBD
